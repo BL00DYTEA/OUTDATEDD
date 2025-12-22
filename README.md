@@ -1,4 +1,8 @@
-## Hi there 👋
+## FloydOnHotdog
+
+?[BetterPlace](https://i.redd.it/hq08qpzw7cqc1.png)
+
+hi! im cassy / poppy , you can call me by anything actually . he/she proun :-) c*h enc + int freely ! dont be shy to bmf , i love having new moots
 
 <!--
 **FloydOnHotdog/FloydOnHotdog** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
